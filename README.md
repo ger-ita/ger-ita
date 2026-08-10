@@ -2,7 +2,7 @@
   <img width="250" height="250" src="https://files.catbox.moe/uzz4th.png">
 </p>
 
-<p align="center">germany / lugwig</p>
+<p align="center">germany / ludwig</p>
 
 <p align="center">he / they </p>
 
