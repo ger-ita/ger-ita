@@ -8,6 +8,6 @@
 
 <p align="center">possibly aroace.</p>
 
-<p align="center"> do NOT c+h me whenever im with my friends. ask to c+h. im busy irl and im not looking for more friends. feel free to interact with me however, im chill :-).
-<p align="center"> basic dni, problematic media dni. self diagnosis dni unless you really intend to go to the doctor for a diagnosis. hetalia fndom IWVEC
-
+<p align="center"> dont c+h me. dont cover my skins. i do not need more friends. though, feel free to interact whenever you wish. </p>
+<p align="center"> general dni list </p>
+<p align="center"> GERMANCEST DNIDNIDNI EW </p>
