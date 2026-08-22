@@ -9,3 +9,9 @@
  <p>$\color{#90e0ef}\textsf{can be seen with my gay brother, @prussiaa !!(def didnt messed up the link)}$</p>
  <p>$\color{#ade8f4}\textsf{PLEASE do not c+h with me without asking. or especially when im already sitting with someone. i got uncomf.}$</p>
  <p>$\color{#caf0f8}\textsf{basic dni, have common sense. i do not support germancest, italycest or any incest in general. do not assumed randomly :/}$</p>
+
+
+ <p>$\color{#caf0f8}\textsf{.}$</p>
+
+$\color{#caf0f8}\textsf{im sucks at those ok? i usally made it boring cuz yeah bruh}$</p>
+
