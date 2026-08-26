@@ -13,6 +13,8 @@
 
  <p>$\color{#caf0f8}\textsf{.}$</p>
 
+ $\color{#caf0f8}\textsf{a multishipper,,, i fw rusger, gerame, germano and gerita ,, if you ship these PLS int🐟}$</p>
+
 $\color{#caf0f8}\textsf{im sucks at those ok? i usally made it boring cuz yeah bruh}$</p>
 
 $\color{#caf0f8}\textsf{more information can be found on rentry+strawpage!}$</p>
